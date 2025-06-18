@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AnthonyMarchello
+- 👋 Hi, I’m @TonyMarchello
 - 👀 I’m interested in Taco Bell.
 - 🌱 I'm currently finishing my senior year of college.
 - 💞️ I’m looking to collaborate on nothing for now.
